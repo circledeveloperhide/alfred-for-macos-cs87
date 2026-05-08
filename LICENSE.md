@@ -1,4 +1,4 @@
-
+updated Alfred for macOS Tool | virtualization + privacy-protection offers the most advanced Alfred for macOS tool, with virtualization and privacy-protection. Ideal for macOS
 
 
 
